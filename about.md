@@ -1,3 +1,6 @@
+---
+background: '/img/Gearvn_vaporwave_ (2).jpg'
+---
 # CV Gia Bảo
 - THIẾT KẾ ĐỒ HỌA
 ## Thông tin
