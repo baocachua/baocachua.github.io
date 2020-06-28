@@ -1,4 +1,5 @@
-# CV Gia Bảo THIẾT KẾ ĐỒ HỌA
+# CV Gia Bảo
+THIẾT KẾ ĐỒ HỌA
 ## Thông tin
 - Địa chỉ: phường Bình Khánh, Long Xuyên, An Giang.
 - Gmail: ngbao_19th1@student.agu.edu.vn.
