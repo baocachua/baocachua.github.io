@@ -6,7 +6,7 @@
 - Sđt: 0394290919.
 ## Tóm tắt
   Tôi tên Nguyễn Gia Bảo. Tôi 20 tuổi, quê ở An Giang, hiện tại đang là sinh viên năm 2 ở Đại hoc An Giang. Muốn được cống hiến, được khẳng định bản thân.
-##s Sở thích
+## Sở thích
 - Đọc sách, truyện tranh
 - Nghe nhạc, xem phim
 - Câu cá, bơi lội
